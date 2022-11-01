@@ -46,13 +46,13 @@
 
 - “学根”
 
-  ![image-20221101171752490](C:\Users\Denver\AppData\Roaming\Typora\typora-user-images\image-20221101171752490.png)
+  ![image](https://user-images.githubusercontent.com/65277980/199201402-aae2da8b-6202-433a-b10e-b37419782d98.png)
 
 - 骗哥们儿可以，但别把你自己骗到了就行，哥们儿被你骗到了真的无所谓，打个哈哈就过了，但希望你打完这段话后擦一下眼角，别让眼泪掉在手机屏幕上就行。你说的这些话，哥们信一下也是没什么的，还能让你有个心理安慰，但这些话说出来骗骗兄弟就差不多得了，哥们儿信你一下又不会少块肉，但是你别搞得自己也当真了就行，哥们儿被你骗一下是真无所谓的，兄弟笑笑也就过去了。真不是哥们儿想要破你防，你擦擦眼泪好好想想，除了兄弟谁还信你？
 
 - 长恨此身非我有，何时忘却营营
 
-  ![image-20221101171808403](C:\Users\Denver\AppData\Roaming\Typora\typora-user-images\image-20221101171808403.png)
+  ![image](https://user-images.githubusercontent.com/65277980/199201454-fa600b8f-6c91-4460-9cc8-830b45407cb6.png)
 
 - 知我罪我，其惟春秋
 
