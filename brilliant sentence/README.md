@@ -1,0 +1,42 @@
+# 杂项（未整理）
+
+- **来日后会相予期，去去莫迟疑**
+- **要走得快，就一个人走；要走得远，就一起走。**
+- 流れる水には形が无い、そよぐ风は姿も见えない
+- 黑夜给了我黑色的眼睛，我却用他来寻找光明
+- 重逢总是比告别少，永远只少一次
+- ~~平生不修善果，只爱杀人放火。忽地顿开金绳，这里扯断玉锁。~~钱塘江上潮信来，今日方知我是我
+- 书上说了，天下没有不散的宴席，但别怕，书上还说了，人生何处不相逢
+- 世间安得两全法，不负如来不负卿
+- 人生当苦无妨，良人当归即好
+- 我与我周旋久，宁作我
+- 你背单词时，阿拉斯加的鳕鱼正跃出水面；你算数学时，太平洋彼岸的海鸥振翅掠过城市上空；你晚自习时，极图中的夜空散漫了五彩斑斓。但是少年你别着急，你在你为自己未来踏踏实实地努力时，那些你感觉从来不会看到的景色，那些你感觉终身不会遇到的人，正一步步向你走来。
+- 佛说世界，即非世界，是名世界
+- Oh captain，my captain
+- <!--尼采-->Whoever will eventually shake the world will remain silent for a long time; Whoever will eventually light the lightning will be drifting like clouds for a long time.
+  - <!--周国平-->谁终将声震人间，必长久深自缄默；谁终将点燃闪电，必长久如云漂泊。
+- In me the tiger sniffs the rose.
+  - <!--余光中-->心有猛虎，细嗅蔷薇
+- <!--西班牙语-->Dios aprieta pero no ahoga - 上帝会扼住你的咽喉，但不会让你感到窒息
+- <!--三毛-->“你对我的百般注解和识读，并不构成万分之一的我，确是一览无遗的你”
+- 《魔兽世界熊猫人之谜》开幕词翻译
+  - To ask why we fight - **战火为何而燃？**
+  - Is to ask why the leaves fall - **秋叶为何而落？**
+  - It is in the nature - **天性不可夺，**
+  - Perhaps there is a better question - **吾辈心中亦有惑。**
+  - Why do we fight - **怒拳为谁握，**
+  - To protect home and family - **护国安邦惩奸恶，**
+  - To preserve balance and bring harmony - **道法自然除心魔。**
+  - For my kind - **战无休而祸不息，**
+  - The true question is what is worth fighting for - **吾辈何以为战。**
+- Lolita, light of my life, fire of my soul. My sin, my soul, Lo-lee-ta. The tip of the tongue taking a trip of three steps down the palate to tap, at three, on the teeth, Lo-lee-ta.
+- Cast a cold eye on life, on death. Horseman, pass by.
+  - 生与死，冷眼一撇，骑者且行路
+  - 冷眼向生死 一骑过红尘
+- 学了根，枝枝梢梢会自己长出来。千年古树规模很大？就一根树干。
+- 《莱斯特小姐》出自《破碎故事之心》，“有人认为爱是性，是婚姻，是清晨六点的吻，是一堆孩子，也许真是这样的，莱斯特小姐。但你知道我怎么想吗，我觉得爱是想触碰又收回手”
+- 长恨此身非我有，何时忘却营营
+- 知我罪我，其惟春秋
+- 攻克己身，叫身服我
+- 现在是过去的未来，而现在又是未来的过去，开始即是结束，结束又成为下一个开端
+- 卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭
