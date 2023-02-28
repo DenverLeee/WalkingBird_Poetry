@@ -12,7 +12,7 @@
 - 我与我周旋久，宁作我
 - 你背单词时，阿拉斯加的鳕鱼正跃出水面；你算数学时，太平洋彼岸的海鸥振翅掠过城市上空；你晚自习时，极图中的夜空散漫了五彩斑斓。但是少年你别着急，你在你为自己未来踏踏实实地努力时，那些你感觉从来不会看到的景色，那些你感觉终身不会遇到的人，正一步步向你走来。
 - 佛说世界，即非世界，是名世界
-- Oh captain，my captain
+- Oh captain,my captain
 - <!--尼采-->Whoever will eventually shake the world will remain silent for a long time; Whoever will eventually light the lightning will be drifting like clouds for a long time.
   - <!--周国平-->谁终将声震人间，必长久深自缄默；谁终将点燃闪电，必长久如云漂泊。
 - In me the tiger sniffs the rose.
